@@ -1,6 +1,6 @@
 ##    Eai galera, tudo legalMassa?
 
- <img align="center" height="250" alt="coding-time" src="giphy.webp">
+ <img align="center" height="250" alt="coding-time" src="Capa linkedin.jpeg">
  
  
 <div  align="center"> 
